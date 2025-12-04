@@ -1,1 +1,0 @@
-# A.-Holiday-Of-Equality
